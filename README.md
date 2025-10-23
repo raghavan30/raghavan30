@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @raghavan
 - 👀 I’m interested in cybersecurity 
-- 🌱 I’m currently in my second year of college
+- 🌱 I’m currently in my final year of college
 - 📫 How to reach me ig: raghavan_04 
